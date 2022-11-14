@@ -1,0 +1,1 @@
+Some ideas I had to various projects.
